@@ -1,1 +1,1 @@
-Kindly check my assignment and suggest me everything!
+Kindly check my assignment and suggest me anything!
